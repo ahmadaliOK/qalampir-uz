@@ -1,0 +1,1 @@
+# qalampir_uz
